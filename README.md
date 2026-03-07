@@ -1,4 +1,4 @@
-<img src='https://files.catbox.moe/37jytf.jpg'/></a>
+<img src='https://files.catbox.moe/93kcy7.jpeg'/></a>
 
 <p align="center">                                              𝚫𝚴𝐃𝚩𝚫𝐃-𝚳𝐃-𝛁2</p>
 
